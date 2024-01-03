@@ -1,1 +1,1 @@
-# AdvertiseMinimalist
+Bitbo status updates
